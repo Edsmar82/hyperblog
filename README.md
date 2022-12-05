@@ -7,6 +7,9 @@ que veremos:
 - como insertas imagenes
 - y muchas cosas mas
 - adicional varios temas muy interesantes
+- con ejemplo muy creativos
+- disponible para todos
+
 
 **te invito a que lo conozcas**
 :smile:
