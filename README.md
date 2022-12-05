@@ -6,6 +6,7 @@ que veremos:
 - lista de comandos
 - como insertas imagenes
 - y muchas cosas mas
+- adicional varios temas muy interesantes
 
 **te invito a que lo conozcas**
 :smile:
